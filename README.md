@@ -16,16 +16,13 @@
 
 
 ols mfrs
-
-![238e14eb92e5866ff09af2123a809d6c](https://github.com/user-attachments/assets/fc5370fc-a2c8-4f06-ba12-ab7b5d6a20f7)   ➶ ｡˚ 　　꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦
-
 dni if➶ ｡˚ 　　
 
 ✧.* toxic.
 
-✧.* rem
+rem
 
-✧.* xyo
+xyo
 
 ✧.* negative people
 
@@ -34,3 +31,30 @@ dni if➶ ｡˚ 　　
 ✧.* weird kny fans
 
 bro i still suck at making these things
+
+                                                                                      ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ 𝒇𝒂𝒏𝒅𝒐𝒎𝒔
+                                                                    ˎˊ˗જ⁀➴ ♡ Toilet-Bound Hanako-Kun
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ Demon slayer / Kimetsu no Yaiba
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ The Promised Neverlands
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ Mo Dao Zu Shi / Grandmaster of Demonic Cultivation
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ Tian Guan Ci Fu / Heaven Official's Blessing
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ The Apothecary Diaries
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ Jujutsu Kaisen
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ Solo Leveling
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ The Disastrous Life of Saiki K.
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ Puella Madoka Magika
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ Attack on Titan
+                                                                    
+                                                                    ˎˊ˗જ⁀➴ ♡ dandy's world ( i guess)
+                                                                    
+          ˎˊ˗જ⁀➴ ♡ bunneyyy wooohoooo👻
