@@ -1,4 +1,4 @@
-![download](https://github.com/user-attachments/assets/147af8f5-1cc3-4d6b-b766-98553c8eb750)           i love them sm pls kill me
+![Image](https://github.com/user-attachments/assets/a674be6c-6ac3-4ac1-a60c-5d432e75ca2e)           i love them sm pls kill me
 
 
 
