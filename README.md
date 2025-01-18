@@ -51,10 +51,21 @@ bro i still suck at making these things
                                                                     
                                                                     ˎˊ˗જ⁀➴ ♡ The Disastrous Life of Saiki K.
                                                                     
-                                                                    ˎˊ˗જ⁀➴ ♡ Puella Madoka Magika
+                                                                    ˎˊ˗જ⁀➴ ♡ Puella Magi Madoka Magika
                                                                     
                                                                     ˎˊ˗જ⁀➴ ♡ Attack on Titan
                                                                     
                                                                     ˎˊ˗જ⁀➴ ♡ dandy's world ( i guess)
                                                                     
-          ˎˊ˗જ⁀➴ ♡ bunneyyy wooohoooo👻
+                                                                    ˎˊ˗જ⁀➴ ♡ Spy x Family
+
+                                                                    ˎˊ˗જ⁀➴ ♡ Spirited Away
+
+                                                                    ˎˊ˗જ⁀➴ ♡ A Silent Voice
+
+
+
+
+
+                  ˎˊ˗જ⁀➴ ♡ bunneyyy wooohoooo👻
+                                                                    
